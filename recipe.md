@@ -1,0 +1,6 @@
+-Preheat the oven to 350°F (177°C)
+-Add flour, sugar, cocoa, baking powder, baking soda, salt and coffee powder to a large bowland whisk through to combine and remove lumps.
+-Add milk, vegetable oil, eggs, and vanilla to flour mixture and mix together until well combined.
+-Mix thouroughly until the batter is smooth and well combined.
+-Bake in the oven for 30-35 minutes and cool for at least 10 minutes after baking.
+-Enjoy!
